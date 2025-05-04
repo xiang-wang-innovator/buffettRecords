@@ -1,2 +1,15 @@
 # buffettRecords
-Copy the original Buffett’s sayings
+Quote the original Buffett’s sayings
+
+
+
+# Buffett presides over the 2025 Berkshire Hathaway annual shareholder meeting - 5/3/25
+
+
+Buffett: Okay, if everyone will please take their seats. Yeah, this is my .. this is my 60th annual meeting. and it's the biggest and I think it'll be the best yet. And I would .. before I start, I'd like to give you a few figures from .. from yesterday because we set all kinds of records.  Uh yesterday we had  um..  19,700 people that joined us in the afternoon between noon and 5:00.  And that was up from 16,200 which was previous record the year before. and in every aspect we set records. Sees Candy did uh.. $317,000 against 283,000 the year before. And most of these were limited by capacity. I mean, there were .. there were lines there throughout the total day. Brooks did 310,000 was all-time record sales day for them. And I think they have close to 3,000 runners lined up for Sunday. which is a lot of people to get up that I think we've had 2200 or 2400 before, but 3000. And that doesn't count me and it won't count me  and uh I could go up and down the line. Jazz wares around 250,000 double the previous years. They just sell as fast as they can sell. Most of most every place had people lined up at the .. at the cash register sometimes for a lot longer wait than wish we had. But we'll learn the game eventually. And it goes on and on . Every company set records. and ..adn there's no way how manpy people we have here today. we have people listening in around the world. but  I think we're setting we'll probably set records in a great variety of ways. 
+
+And I would uh we're going to have in a minute we'll get the question and answer. but I'd like to first introduce our directors and ... I'm Warren Buffett and I was born and bred right here in Omaha.  We have Greg Ael. who was born and bred in Canada. And we have a Jeep Jane who was born and bred in India. We have a very diverse group. uh in the audience and I will introduce them alphabetically and if they'll stand as I introduce them and I know it will be an effort but withhold your applause till the end so that we can get through the list but we'll alphabetically with Howard Buffett How would you stand and withold the applause ？ it'll go to his head. Susan Buffett. We have Steve Burke. Ken Channel Cris Davis  Sue Decker. Sue is our lead director, Charlotte Gam Tom Murphy Jr. Ron Olsen and when we finish I'll have a few more things to have about him. Wally White and Mel Whitmer, And with that you've got our all-star cast.  And Ron, if you don't mind standing, I would like to point out that  Ron, they finally got through an age director thing at Birkshire. I think we had five that were over 90 here not so long ago, but we put in the highest  Sue tells me anyway that it's the highest age  limit that any of the companies she checked out came up with. But Ron has been on board for 28 years. and been associated with Charlie Munger tolls for many years beyond that and has been around a variety of times of crisis and joy and disappointments and surprises and everything else at Berg and has been of invaluable help to us.So I think I'd like to give a special hand to Ron.
+
+(Applause)
+
+Olsson and I think
